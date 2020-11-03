@@ -6,7 +6,7 @@
 > 
 > 认真是我们参与这个社会的方式，认真是我们改变这个社会的方式。  ——李志
 
-歌曲下载:[https://svo.me](https://svo.me)
+李志歌曲下载:[https://svo.me](https://svo.me)
 
 
 ### 🌚  作者
